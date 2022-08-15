@@ -1,3 +1,3 @@
 # school-test
 School Projects
-**This is a test my sussy baka**
+**LOng bevore time had a name first ninjago master created spinjitsu**
